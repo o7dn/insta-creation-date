@@ -6,4 +6,4 @@
 
 ![Example](https://user-images.githubusercontent.com/63129066/223790972-eba8069a-5885-4139-aa87-81c61536e5dd.png)
 
-Buy it Here >>> 
+Buy it Here >>> https://vardxg.mysellix.io/product/6408cf92280f3
